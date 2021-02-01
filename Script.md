@@ -23,7 +23,7 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 George met the Unicorn King who granted him magic powers.
-The end.
+The king also gave George 1 million DOGE. 
 
 ## Cast
 
